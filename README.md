@@ -1,0 +1,1 @@
+# sambeed-ku-panda-point-system
